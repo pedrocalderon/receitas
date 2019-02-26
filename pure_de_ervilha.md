@@ -10,8 +10,8 @@
 * 3 batatas inglesas médias picadas
 * 1 colher de sopa de massala
 * 1 folha de louro
-* 0.5 xícaras de missô shiro
-* Azeito
+* 1/2 xícara de missô shiro
+* Azeite a gosto
 
 
 ## Modo de preparo
